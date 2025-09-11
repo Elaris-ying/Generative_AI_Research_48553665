@@ -1,0 +1,1 @@
+# REIT6811-Research-Journal
